@@ -7,6 +7,6 @@ Here are some ideas to get you started:
 -->
 
 
-- 🔭 I’m currently working as a Solutions Engineer at GitHub :smile::sunny:
+- 🔭 I’m currently working as an Account Executive at GitHub :smile::sunny:
 - 💬 Ask me about my gnarly ankle scar
 - 😄 Pronouns: he/him/el
